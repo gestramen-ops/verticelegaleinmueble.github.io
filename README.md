@@ -1,0 +1,1 @@
+vertice legal e inmueble
